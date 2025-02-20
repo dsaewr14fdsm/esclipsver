@@ -7,4 +7,5 @@
 📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
 
+
 No vídeo, que foi gravado por um homem presente no local, as mulheres aparecem circulando pelos corredores do supermercado com trajes de banho. Em determinado momento, uma delas chega a rebolar para a câmera, em uma clara provocação, enquanto o grupo ri.
