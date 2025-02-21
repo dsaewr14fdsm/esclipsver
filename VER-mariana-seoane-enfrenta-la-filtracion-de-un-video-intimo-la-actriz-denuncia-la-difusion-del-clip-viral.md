@@ -1,6 +1,10 @@
 En los últimos días, la cantante y actriz Mariana Seoane ha acaparado titulares tras enfrentarse a una situación que ha generado un intenso debate entre sus seguidores y la opinión pública. La filtración de un video íntimo en las redes sociales puso a la artista en el ojo del huracán, desatando una ola de comentarios y reacciones en plataformas digitales.
 
-Este incidente no solo ha vulnerado su privacidad, sino que también ha añadido una carga emocional significativa en un momento ya complicado para la intérprete.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
 Con palabras firmes, Seoane denunció la difusión del video, subrayando la importancia de respetar los límites personales y enfrentando la situación con integridad, a pesar del impacto emocional que esto representa.
 
