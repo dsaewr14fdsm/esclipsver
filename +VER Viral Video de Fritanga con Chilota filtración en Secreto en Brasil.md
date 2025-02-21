@@ -1,6 +1,10 @@
 La filtración de un video íntimo de Felipe Urra, más conocido como Fritanga, ha generado un gran revuelo en redes sociales y en el mundo del espectáculo. En la grabación, el exparticipante del reality 'Secreto en Brasil' aparece teniendo relaciones sexuales con una compañera del programa.
 
-Sin embargo, Fritanga ha afirmado que no recuerda el incidente y asegura que fue drogado sin su consentimiento.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
 Según su versión, el hecho ocurrió después de haber consumido alcohol, el cual, según él, habría sido alterado con alguna sustancia desconocida. Esta situación ha desatado una ola de comentarios y especulaciones sobre lo que realmente sucedió durante el rodaje del reality.
 
