@@ -1,6 +1,12 @@
 En las últimas las redes sociales han estallado en torno a un supuesto video viral de Mariana Zapata con su entrenador en Twitter (ahora X), en donde según múltiples usuarios se muestran sosteniendo un encuentro íntimo. Los rumores fueron esparcidos mediante una publicación en la red mencionada y a partir de la difusión se han convertido en un fenómeno digital.
 
-Marina Zapata es una popular creadora de contenido y además es una empresaria que se ha convertido en una figura a seguir por muchas mujeres colombianas, sin embargo, la supuesta difusión de este material ha puesto su nombre en manifiesto.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
 Los seguidores de la influencer y pareja actual de MrStiven, no han dudado en reaccionar y a realizar consultas como: ¿dónde ver el video filtrado de Mariana Zapata y el entrenador?, ¿video viral de Mariana Zapata en Twitter?, esto con la intención de saciar su curiosidad en torno al metraje.
 
